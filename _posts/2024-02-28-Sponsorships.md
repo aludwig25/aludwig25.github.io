@@ -1,4 +1,4 @@
-We are busy preparing for this summer's upcoming concert. Everything will be bigger and better this time, including a full orchestra accompanying the entire show! This expansion, however, costs money and we are hoping to raise even more money than last time. So this year, we are introducing sponsorships at both the Individual and Business levels. Every dollar raised via sponsorship will go towards operating expenses for the show. 
+We are busy preparing for this summer's upcoming concert. Everything will be bigger and better this time, including a full orchestra accompanying the entire show! This expansion, however, costs money, and we are hoping to raise even more money than last time. So this year, we are introducing sponsorships at both the Individual and Business levels. Every dollar raised via sponsorship will go towards operating expenses for the show. Please see the chart below that outlines the levels of available sponsorships. Email <a href="mailto:eichenbergerbenefit@gmail.com">EichenbergerBenefit@gmail.com</a> with any questions.
 
 <table>
   <tr>
