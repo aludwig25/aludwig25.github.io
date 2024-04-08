@@ -6,7 +6,7 @@ We are busy preparing for this summer's upcoming concert. Everything will be big
     <td>"Reception" Sponsor</td>
     <td>"Venue" Sponsor</td>
     <td>"Music" Sponsor</td>
-    <td>"Tuning" Sponsor</td>
+    <td>"Cartwheel" Sponsor</td>
     <td>"Community Partners"</td>
   </tr>
   <tr>
